@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning speedrun
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:email and roblox:luis_otaviopro20
-- 😄 Pronouns: luizao
+- 😄 Pronouns:he his
 - ⚡ Fun fact: i love paper Mario 
 
 <!---
